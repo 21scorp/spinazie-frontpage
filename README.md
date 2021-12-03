@@ -36,7 +36,8 @@ Om je tijd te besparen staat onderaan de opdrachtbeschrijving ook de platte teks
 150 g geraspte 30+ kaas
 
 ### Bereiden
-Verwarm de oven voor op 180 °C. Snijd de volgende ingredienten: Snipper de ui. Snijd de knoflook fijn. Snijd de champignons in plakjes. Verhit de olie in een hapjespan en bak de ui en champignons 3 min. op hoog vuur. Voeg de knoflook, spinazie en Italiaanse kruiden toe en verwarm 7 min. op middelhoog vuur mee. Roer regelmatig.
+Verwarm de oven voor op 180 °C. 
+Snijd de volgende ingredienten: Snipper de ui. Snijd de knoflook fijn. Snijd de champignons in plakjes. Verhit de olie in een hapjespan en bak de ui en champignons 3 min. op hoog vuur. Voeg de knoflook, spinazie en Italiaanse kruiden toe en verwarm 7 min. op middelhoog vuur mee. Roer regelmatig.
 
 Voeg de zuivelspread toe en verwarm 1 min. mee. Breng de groentesaus op smaak met peper en eventueel zout. Doe ondertussen de linzen in een vergiet en spoel af onder koud stromend water. Laat uitlekken en voeg toe aan de groentesaus.
 
